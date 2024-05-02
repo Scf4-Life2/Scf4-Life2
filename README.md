@@ -2,7 +2,7 @@
 - 👀 I’m interested in Audio/film/music and sports
 - 🌱 I’m currently learning Multimedia & Creative Technology at KdG in Antwerp
 - 💞️ I’m looking to collaborate on js
-- 📫 How to reach me 'masonnijssen@gmail.com
+- 📫 How to reach me masonnijssen@gmail.com
 - 😄 Pronouns: Rosten/Chappie/Modest/bolle
 - ⚡ Fun fact: I am... Marvel Jesus.
 
